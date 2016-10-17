@@ -1,2 +1,2 @@
 # My project
-just for help to give ГГ sert
+just for help to give UU sert
